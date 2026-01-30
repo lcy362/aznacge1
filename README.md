@@ -8,14 +8,14 @@
 
 ### 1. LosePrivacy
 
-地址：[Loseprivacy](https://loseprivacy.net?lp=MjU0ODg1)
+地址：[Loseprivacy](https://loseprivacy.sbs?lp=Njk1ODk3)
 
 
 注册账号就送点券，每天签到送点券，邀请用户注册送点券功能无法正常使用，只要每天签到就能白嫖查询次数！！！<br>
 
 ### 2. txcdns
 
-地址：[txcdns](https://txcdns.online)
+地址：[txcdns](https://txcdns.online?cf=MTMzMjUw)
 
 
 每天签到送钻石！！！<br>
